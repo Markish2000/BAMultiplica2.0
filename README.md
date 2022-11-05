@@ -1,1 +1,0 @@
-# BAMultiplica2.0
